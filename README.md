@@ -1,6 +1,6 @@
 # mysterioxx
-- 👋 Hi, I’m @mysterioxx - 👀 
-- 👀I’m interested in 🚀🌌 
+- 👋 Hi, I’m @mysterioxx 
+- 👀 I’m interested in 🚀🌌 
 - 🌱 I’m currently learning 💻 
 - 💞️ I’m looking to collaborate on something productive 
 - 📫 How to reach me https://t.me/xxerio 

@@ -1,5 +1,4 @@
 # mysterioxx
- 
 - 👋 Hi, I’m @mysterioxx - 👀 
 - 👀I’m interested in 🚀🌌 
 - 🌱 I’m currently learning 💻 
